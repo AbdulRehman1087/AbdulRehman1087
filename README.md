@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @AbdulRehman1087
+- 👀 I’m interested in programming, tech innovations, and personal development.
+- 🌱 I’m currently learning new programming skills and working on my first project.
+- 💞️ I’m looking to collaborate on open-source projects, coding challenges, and anything that helps me grow in the tech field.
+- 📫 How to reach me: You can reach me via email at abdmasood4407@gmail.com
+- 😄 Pronouns: He/Him
+- ⚡ Fun fact: I have oily skin, and I’m passionate about both self-care and coding!
